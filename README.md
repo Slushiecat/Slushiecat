@@ -1,6 +1,6 @@
 ## Hi there ^u^ 🩷🍰🍪
 
-Hiya im 2cookie ^u^
+Hiya im Slushie ^u^
 
 lowkey quit idk i dont have the energy anymore for coding and dont rly find it too fun anymore
 
