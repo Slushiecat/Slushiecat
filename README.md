@@ -4,6 +4,9 @@ Hiya im Slushie ^u^
 
 lowkey quit idk i dont have the energy anymore for coding and dont rly find it too fun anymore
 
+want to learn about private cellular netowrks? you should check out my repo here
+https://github.com/5g4every1/5g-as-fast-as-possible
+
 i absoloutley hate rust btw
 
 Pc specs:
